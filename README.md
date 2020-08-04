@@ -1,2 +1,2 @@
-# hello-world
-my first repository
+SHUE PPH 
+VLAST SHIZAAAAAAAAAAAAAAM
