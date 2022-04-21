@@ -1,1 +1,1 @@
-Привт мир
+Hello world
